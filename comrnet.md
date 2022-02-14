@@ -1,0 +1,5 @@
+qadirli bolojonlar biz kun davomida bajaradigan amallarimizning bazis ixtiyoriy, ba'zisi zaruriy bo'ladi. Ixtiyoriy amallarga kitop o'qish, o'yin o'ynah kabi kirsa, uxlash, ovqatlanish, hojatxonga borish kabi ammallar zaruriy amallardir. yuqorid uyquga yotish va turish,ovqatlanish odoblarini o'rgandik. Keling, endi hojatxonaga kirish va chiqish odoblarini o'rganamiz. 
+Avvalo hojatxonaga borigisi kelgan kishi buni keyinga surmasligi, imkon bo'lsa, darxol borishi kerak. Hojatxonaga borgisi kelganda bormam yursa, sog'liq uchun zarar bo'lishi mumkun Demak o'yin o'ynayotganimizda o'yinga berilib, o'ingizni qiynamasligingiz lozim yoki darsda bo'lsangiz, bo'lmay, tashqariga chiqib-kelish uchun ruxsat so'rashigiz kerak.
+Hojatxonaga kirmoqchi bo'lgan kishi ustki kiyimlarini yechadi, cho'ntaklariga qaraydi. Cho'ntagida yegulik, dida muqaddas sanalgan so'zlar yozilgan yozuvlar bo'lmaslogi lozim.Shuningdek og'izdayegulik yoki ovqat yuqi bilan kirilmaydi. 
+Hojatxonaga chap oyoq bilan kiriladi.Kirgach, hojatxonani eshigini qulflab olinadi.
+Hojatxonada zaruratsiz gapirish yaxshimas. Ust-boshni toza tutib, nopok narsalarni tekkizmay, hojat ushatiladi. 
